@@ -1,1 +1,0 @@
-# Forset-Fire-Prediction-
